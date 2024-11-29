@@ -7,12 +7,6 @@
 
 
 # Sua casa ficara muito mais limpa com os nossos produtos 
-![image](https://github.com/user-attachments/assets/10fcf5e8-5c80-4d9f-89a5-8369f463c567)
-![image](https://github.com/user-attachments/assets/710cabe9-87a5-4e48-a48d-05d4d9e47a00)
-![image](https://github.com/user-attachments/assets/5c30402d-3e47-4aa4-9fda-fa147df3a1ef)
-![image](https://github.com/user-attachments/assets/7edf0d6a-1c41-4ca1-8135-f5506d851a56)
-![image](https://github.com/user-attachments/assets/e0ddec91-17d8-4981-b5af-3a065eff26f6)
-![image](https://github.com/user-attachments/assets/ed3d913e-fabe-4c24-88be-707488089aa0)
 
 
  
@@ -22,14 +16,12 @@
 ![image](https://github.com/user-attachments/assets/9e287c56-c1ed-49ac-bc31-1961f8895dce)
 
 # Seu café da manha será melhor com os nossos produtos
-![image](https://github.com/user-attachments/assets/ecdede5a-d089-4cbb-875e-6e2d7256128f)
-
-
-![image](https://github.com/user-attachments/assets/1c9049b0-b9eb-498e-b368-5832088388ed)
-
-![image](https://github.com/user-attachments/assets/9b694c42-9db6-4a5e-8799-f6d3f975729f)
-
-![image](https://github.com/user-attachments/assets/29ac5828-bf8a-4d89-83b1-e66e0b730a4d)
+![image](https://github.com/user-attachments/assets/10fcf5e8-5c80-4d9f-89a5-8369f463c567)
+![image](https://github.com/user-attachments/assets/710cabe9-87a5-4e48-a48d-05d4d9e47a00)
+![image](https://github.com/user-attachments/assets/5c30402d-3e47-4aa4-9fda-fa147df3a1ef)
+![image](https://github.com/user-attachments/assets/7edf0d6a-1c41-4ca1-8135-f5506d851a56)
+![image](https://github.com/user-attachments/assets/e0ddec91-17d8-4981-b5af-3a065eff26f6)
+![image](https://github.com/user-attachments/assets/ed3d913e-fabe-4c24-88be-707488089aa0)
 
 # Mate a sua sede aqui conosco
 ![image](https://github.com/user-attachments/assets/08d5fa83-3572-4bc3-997a-7c8bb9d8b8c7)
