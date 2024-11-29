@@ -64,7 +64,7 @@
 ![image](https://github.com/user-attachments/assets/e302e257-1a76-44c5-b9bd-5dfc26b1f591)
 ![image](https://github.com/user-attachments/assets/69224abb-98f9-4282-93b3-8ae29063ef69)
 
-# os melhores temperos para as melhores ocasiões
+# os melhores temperos para as melhores ocasioes
 ![image](https://github.com/user-attachments/assets/7fe50f82-b84a-45ff-b41e-c5d4d2182b73)
 
 # Compre mais pagando menos
