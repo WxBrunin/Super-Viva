@@ -1,6 +1,6 @@
 # Super-Viva
 
-# compre aqui e economize o maximo 
+# Compre aqui e economize o maximo 
 
 # Atendimentos rapidos,poupe seu tempo
 
@@ -40,7 +40,7 @@
 
 ![image](https://github.com/user-attachments/assets/d88c7c77-bbc4-4c17-986d-c8e1ecfa40fd)
 
-# para uma vida saudavel voçê tambem precisa
+# para uma vida saudavel você tambem precisa
 
 ![image](https://github.com/user-attachments/assets/ffa6760c-c820-470f-9721-dcfa9693c886)
 
@@ -52,6 +52,8 @@
 
 # nada melhor que um bom leite de manhã não é
 ![image](https://github.com/user-attachments/assets/258ddf93-800d-4b96-b05f-1f02dc10fb15)
+
+os melhores ovos da regiao estao aqui
 
 # ![image](https://github.com/user-attachments/assets/87372421-13cd-4bec-8542-9b270772bfd8)
 
