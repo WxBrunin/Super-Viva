@@ -25,6 +25,6 @@
 # venha se deliciar com o melhor sucrilhos
 ![image](https://github.com/user-attachments/assets/bef8e5cb-40b4-4137-9b5b-d0b14a4ec415)
 
-faça uma pausa com os melhores doces
+# faça uma pausa com os melhores doces
 
 ![image](https://github.com/user-attachments/assets/e2365d53-2ad6-4d9e-b5cb-84dafdde9fd1)
