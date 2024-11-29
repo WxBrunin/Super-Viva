@@ -44,3 +44,6 @@
 
 # se voçê esta em busca de um desafio picante então venha se desafiar com as pimentas do nosso mercado
 ![image](https://github.com/user-attachments/assets/4dee541e-d9d7-4100-917d-c947fa31e110)
+
+# nada melhor que um bom leite de manhã não é
+![image](https://github.com/user-attachments/assets/258ddf93-800d-4b96-b05f-1f02dc10fb15)
