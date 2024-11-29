@@ -4,16 +4,15 @@
 
 # Atendimentos rapidos,poupe seu tempo
 
-
-![image](https://github.com/user-attachments/assets/18e58c60-6be5-499e-be6a-f065001539fe)
-
 # Sua casa ficara muito mais limpa com os nossos produtos 
-
-![image](https://github.com/user-attachments/assets/51d5682f-416f-49b9-b8b8-e935938bfc33)
+![image](https://github.com/user-attachments/assets/18e58c60-6be5-499e-be6a-f065001539fe)
+ 
 # Nada melhor que ganhar um pouco de energia com nescau 
+![image](https://github.com/user-attachments/assets/51d5682f-416f-49b9-b8b8-e935938bfc33)
 
-![image](https://github.com/user-attachments/assets/ecdede5a-d089-4cbb-875e-6e2d7256128f)
 # Seu café da manha será melhor com os nossos produtos
+![image](https://github.com/user-attachments/assets/ecdede5a-d089-4cbb-875e-6e2d7256128f)
+
 
 ![image](https://github.com/user-attachments/assets/1c9049b0-b9eb-498e-b368-5832088388ed)
 
