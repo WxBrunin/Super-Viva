@@ -7,7 +7,7 @@
 
 ![image](https://github.com/user-attachments/assets/18e58c60-6be5-499e-be6a-f065001539fe)
 
-# sua casa ficara muito mais linda com os nossos produtos 
+# sua casa ficara muito mais limpa com os nossos produtos 
 
 ![image](https://github.com/user-attachments/assets/51d5682f-416f-49b9-b8b8-e935938bfc33)
 # nada melhor que ganhar um pouco de energia com nescau 
@@ -36,11 +36,11 @@
 
 ![image](https://github.com/user-attachments/assets/e2365d53-2ad6-4d9e-b5cb-84dafdde9fd1)
 
-# um bolo para uma pessoa especial como você então venha se deliciar 
+# Seu cafe da manha sera melhor com nossos bolos
 
 ![image](https://github.com/user-attachments/assets/d88c7c77-bbc4-4c17-986d-c8e1ecfa40fd)
 
-# para uma vida saudadevel voçê tambem precisa
+# para uma vida saudavel voçê tambem precisa
 
 ![image](https://github.com/user-attachments/assets/ffa6760c-c820-470f-9721-dcfa9693c886)
 
