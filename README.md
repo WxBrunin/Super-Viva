@@ -44,7 +44,7 @@
 
 ![image](https://github.com/user-attachments/assets/ffa6760c-c820-470f-9721-dcfa9693c886)
 
-# Venha se refrescar conosco 
+# Venha se refrescar com nossos sorvetes variados
 ![image](https://github.com/user-attachments/assets/66711fc8-c0ce-4972-aa1a-5d35214f5c19)
 
 # Se voçê esta em busca de um desafio picante então venha se desafiar com as pimentas do nosso mercado
