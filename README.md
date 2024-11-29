@@ -24,7 +24,6 @@
 # mate a sua sede aqui conosco
 ![image](https://github.com/user-attachments/assets/08d5fa83-3572-4bc3-997a-7c8bb9d8b8c7)
 
-# venha se refrescar com a melhor agua e os melhores sucos do nosso mercado
 ![image](https://github.com/user-attachments/assets/e8788f6b-2745-45a6-a206-05a2c67afc5b)
 
 ![image](https://github.com/user-attachments/assets/bf3996c7-7878-4218-951f-a1019c3de313)
@@ -57,5 +56,5 @@
 
 # ![image](https://github.com/user-attachments/assets/87372421-13cd-4bec-8542-9b270772bfd8)
 
-# compre as melhores rações para o seu dog para ele ficar feliz
+# compre as melhores rações para o seu dog ficar feliz
 ![image](https://github.com/user-attachments/assets/63d0bc15-1a3d-40d6-837b-3b7838efa647)
