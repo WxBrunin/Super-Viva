@@ -58,3 +58,9 @@
 
 # compre as melhores rações para o seu dog ficar feliz
 ![image](https://github.com/user-attachments/assets/63d0bc15-1a3d-40d6-837b-3b7838efa647)
+
+# as melhores carnes para o seu churrasco estão aqui
+![image](https://github.com/user-attachments/assets/0af730b9-8a71-49ed-94fa-f07ff127700f)
+![image](https://github.com/user-attachments/assets/e302e257-1a76-44c5-b9bd-5dfc26b1f591)
+![image](https://github.com/user-attachments/assets/69224abb-98f9-4282-93b3-8ae29063ef69)
+
