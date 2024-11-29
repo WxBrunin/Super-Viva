@@ -41,3 +41,6 @@
 
 # venha se refrescar conosco 
 ![image](https://github.com/user-attachments/assets/66711fc8-c0ce-4972-aa1a-5d35214f5c19)
+
+# se voçê esta em busca de um desafio picante então venha se desafiar com as pimentas do nosso mercado
+![image](https://github.com/user-attachments/assets/4dee541e-d9d7-4100-917d-c947fa31e110)
