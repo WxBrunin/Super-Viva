@@ -4,6 +4,10 @@
 
 # Atendimentos rapidos,poupe seu tempo
 
+# caixa- Bruno
+# vendedor- Felipe
+# Repositor- Daniel
+
 
 
 # Sua casa ficara muito mais limpa com os nossos produtos 
