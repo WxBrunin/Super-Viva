@@ -28,3 +28,7 @@
 # faça uma pausa com os melhores doces
 
 ![image](https://github.com/user-attachments/assets/e2365d53-2ad6-4d9e-b5cb-84dafdde9fd1)
+
+# um bolo para uma pessoa especial como você então venha se deliciar 
+
+![image](https://github.com/user-attachments/assets/d88c7c77-bbc4-4c17-986d-c8e1ecfa40fd)
