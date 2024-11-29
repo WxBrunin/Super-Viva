@@ -38,3 +38,6 @@
 # para uma vida saudadevel voçê tambem precisa
 
 ![image](https://github.com/user-attachments/assets/ffa6760c-c820-470f-9721-dcfa9693c886)
+
+# venha se refrescar conosco 
+![image](https://github.com/user-attachments/assets/66711fc8-c0ce-4972-aa1a-5d35214f5c19)
